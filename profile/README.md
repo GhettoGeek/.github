@@ -1,3 +1,5 @@
+![](https://github.com/GhettoGeek/.github/blob/main/GhettoGeek_CryptoG_Power-ResizedFINAL.jpg)
+
 ## Hi there 👋
 
 <!--
